@@ -1,1 +1,1 @@
-check out [my rentry](https://rentry.co/coldenough) !
+check out [my rentry](https://rentry.co/beatjradio) !
