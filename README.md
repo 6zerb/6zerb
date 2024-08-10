@@ -1,7 +1,7 @@
 
 <h5 align="center"
   
- ![](https://cdn.discordapp.com/attachments/1245884076003557397/1271109653287141471/6671293fc15f1980ef96a50e7504f66a_77.jpg?ex=66b6249d&is=66b4d31d&hm=eb2d4d3a19f6eede03d126d55ecf3856cbf5a964d097cc76b259683f408630e5&)
+ ![](https://64.media.tumblr.com/0cf817c285677416e73ea2e7a603f164/fe915737b55192dd-0f/s400x600/7444ec53856842a2be8cacc603d4564fb85d7dab.jpg)
 
 𝕲 𝖗𝖆y𝖘@𝖓 　 ꒰ ![](https://64.media.tumblr.com/7005374ad7f975502393528891320e49/b4746bdbb4997815-df/s75x75_c1/016afb24bc42663d8449b78a3741ec4492ce5fd2.gifv) ꒱ 　 + 𝔤𝔯𝔞y　 ⊹ h**e** ノ him 
 
