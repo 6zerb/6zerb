@@ -11,4 +11,4 @@
 
  ![](https://64.media.tumblr.com/0770f18d5a3177d6fe488348f79d4e11/e5539f7e913c8088-98/s540x810/6673e5cd6cce3cd2ad44175515e609c629afd5e3.gifv)
 
- [O1.](https://rentry.co/beatradio)　 [O2.](https://www.last.fm/user/slugrat)　 [O3.](https://open.spotify.com/user/29b3w3o2vjw1nawbodxm5igjw?si=4402ddc581344289)
+ [O1.](https://rentry.co/beatradio)　 [O2.](https://www.last.fm/user/slugrat)　 [O3.](https://open.spotify.com/user/29b3w3o2vjw1nawbodxm5igjw?si=4402ddc581344289)　 [O4.](https://spacehey.com/amonomaniac)
