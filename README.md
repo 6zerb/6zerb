@@ -1,7 +1,7 @@
 
 <h5 align="center"
   
- ![](https://64.media.tumblr.com/0cf817c285677416e73ea2e7a603f164/fe915737b55192dd-0f/s400x600/7444ec53856842a2be8cacc603d4564fb85d7dab.jpg)
+ ![](https://images-wixmp-ed30a86b8c4ca887773594c2.wixmp.com/f/888a513f-708d-4837-9ae4-c414bba92956/dgzmsb3-b56ab03f-116e-488b-887e-58c01c66abca.png?token=eyJ0eXAiOiJKV1QiLCJhbGciOiJIUzI1NiJ9.eyJzdWIiOiJ1cm46YXBwOjdlMGQxODg5ODIyNjQzNzNhNWYwZDQxNWVhMGQyNmUwIiwiaXNzIjoidXJuOmFwcDo3ZTBkMTg4OTgyMjY0MzczYTVmMGQ0MTVlYTBkMjZlMCIsIm9iaiI6W1t7InBhdGgiOiJcL2ZcLzg4OGE1MTNmLTcwOGQtNDgzNy05YWU0LWM0MTRiYmE5Mjk1NlwvZGd6bXNiMy1iNTZhYjAzZi0xMTZlLTQ4OGItODg3ZS01OGMwMWM2NmFiY2EucG5nIn1dXSwiYXVkIjpbInVybjpzZXJ2aWNlOmZpbGUuZG93bmxvYWQiXX0.L0ZtF6MFGwkYsLgg4M3HmEoCu5s-26B4uiSv9cm5PAY)
 
 𝕲 𝖗𝖆y𝖘@𝖓 　 ꒰ ![](https://64.media.tumblr.com/7005374ad7f975502393528891320e49/b4746bdbb4997815-df/s75x75_c1/016afb24bc42663d8449b78a3741ec4492ce5fd2.gifv) ꒱ 　 + 𝔤𝔯𝔞y　 ⊹ h**e** ノ him 
 
