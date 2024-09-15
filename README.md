@@ -9,4 +9,4 @@
 
 ![]()
 
- [O1.](https://rentry.co/beatradio)　 [O2.](https://spacehey.com/6zerb)　 [O3.](https://open.spotify.com/user/29b3w3o2vjw1nawbodxm5igjw?si=4402ddc581344289)
+ [O1.](https://rentry.co/beatradio)　 [O2.](https://open.spotify.com/user/29b3w3o2vjw1nawbodxm5igjw?si=4402ddc581344289)
