@@ -5,4 +5,4 @@
 
 𝕲 𝖗𝖆y𝖘@𝖓 　 +　𝔤𝔯𝔞y　 ⊹ h**e** ノ him 
 
- [O1.](https://rentry.co/6zerb)　 [O2.](https://open.spotify.com/user/29b3w3o2vjw1nawbodxm5igjw?si=4402ddc581344289)　 [O3.](https://wimblewomble1.newgrounds.com)
+ [sign my atabook !](https://sixerpines.atabook.org)
