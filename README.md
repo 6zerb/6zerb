@@ -5,4 +5,4 @@
 
 𝕲 𝖗𝖆y𝖘𝖔𝖓 　 +　𝔤𝔯𝔞y　+ 　 h𝐞  ノ   𝖍𝖎𝖒
 
-we were wrecks before we [crashed](https://youtu.be/Ydv6usKn2rg?si=HdUti42YzRsR34oy)  into 𝐞𝐚𝐜𝐡𝐨𝐭𝐡𝐞𝐫
+we were wrecks before we crashed  into [𝐞𝐚𝐜𝐡𝐨𝐭𝐡𝐞𝐫](https://youtu.be/Ydv6usKn2rg?si=HdUti42YzRsR34oy)
