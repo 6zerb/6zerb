@@ -5,4 +5,4 @@
  
 [about me](https://en.pronouns.page/@6zerb)   +   sign my [atabook](https://6zerb.atabook.org)!
 
-eddsworld enthusiast
+eddsworld + reanimator enthusiast
