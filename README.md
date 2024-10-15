@@ -5,4 +5,4 @@
  
 [about me](https://en.pronouns.page/@6zerb)   +   sign my [atabook](https://6zerb.atabook.org)!
 
-[eddsworld](https://rentry.co/6zerb) + [jsr](https://rentry.co/beatradio) + reanimator enthusiast
+[eddsworld](https://rentry.co/6zerb) + [jet set radio](https://rentry.co/beatradio) + reanimator enthusiast
