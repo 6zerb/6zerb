@@ -5,4 +5,4 @@
 
 [about me](https://en.pronouns.page/@6zerb)   +   sign my [atabook](https://6zerb.atabook.org)!   +   [my linktree](https://linktr.ee/6zerb)
 
-car seat headrest enthusiast
+please dont copy my skins
