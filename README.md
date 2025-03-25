@@ -2,7 +2,7 @@
 
 <h5 align="center"
 
-![](https://64.media.tumblr.com/430c878dd802d7cc29b8e2976f623621/4ffca3aa48f34f3a-a3/s100x200/fc29730b689d112dda1d2b7fec17ac25e1f08443.pnj)
+![]()
 
 [my linktree](https://linktr.ee/6zerb) 　  　 [about me](https://en.pronouns.page/@6zerb) ノ [rentry](https://rentry.co/6zerb) 　  　 [sign ata](https://6zerb.atabook.org) 
 
