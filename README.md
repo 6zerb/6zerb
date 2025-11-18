@@ -1,5 +1,11 @@
 <h5 align="center"
 
-![](https://64.media.tumblr.com/830624b57cae1f379ed77c088b93dcd1/45fb746452f2cbbf-b8/s1280x1920/747142f375130d1455de177d98eb077f7ba18393.pnj)
+
+
+
+𝕲𝖗𝖆y𝖘o𝖓 ノ 𝐠𝐫a𝐲　**1**9　𝐛yte 
+
+u𝐤 　✧　he ノ 𝖎t　𖤓　𝖒e𝖙𝖆𝖑𝖍e𝖆𝖉
+
 
 usually offtab, whisp 2 interact!
