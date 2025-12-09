@@ -11,3 +11,5 @@ u𝐤 　✧　he ノ 𝖎t　𖤓　𝖒e𝖙𝖆𝖑𝖍e𝖆𝖉
 ![](https://64.media.tumblr.com/c1bfa07a5b4b6c403752d7a58fab3a82/83a8c98211993131-86/s400x600/b47adbd5cd6409eabed833d7db4179bb9fb7e376.gifv)
 
 usually offtab, whisp 2 interact!
+
+[steam](https://steamcommunity.com/profiles/76561199125295469/) [spotify](https://open.spotify.com/user/29b3w3o2vjw1nawbodxm5igjw?si=cda4df81f9a14160)
