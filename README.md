@@ -1,7 +1,6 @@
 <h5 align="center"
 
 
-![](https://64.media.tumblr.com/1a59c707debe8cc5aba540a675daed96/3a458f037cbb0713-fe/s250x400/15297211d5a2cd31b00010cd9827a28db3e8ae05.pnj)
   
 ![](https://64.media.tumblr.com/089a1f081cc55be03536680ee2b48638/015d5288ce8e3e9f-21/s500x750/f61af267a74454b8e8dc2fb354e0bff63deb6983.webp)
 
