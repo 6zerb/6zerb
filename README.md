@@ -1,8 +1,6 @@
 <h5 align="center"
 
 
-![](https://i.postimg.cc/MHd8Qynh/96e898333ab2253c6ab7f6dcb3e119fa-removebg-preview.png) 
-
 
 𝕲𝖗𝖆y𝖘o𝖓 ノ 𝐠𝐫a𝐲　19　𝐛yte 
 
@@ -14,3 +12,7 @@ u𝐤 　✧　he ノ 𝖎t　𖤓　𝖒e𝖙𝖆𝖑𝖍e𝖆𝖉
 
 
 ![](https://64.media.tumblr.com/202c30ae129e50067b41b5cfee08837a/dc12c1d321a37d92-19/s75x75_c1/41ac71cc37a2bd537f7127ffc1985a7d640c6a4e.gifv)
+
+
+
+![](https://i.postimg.cc/MHd8Qynh/96e898333ab2253c6ab7f6dcb3e119fa-removebg-preview.png) 
