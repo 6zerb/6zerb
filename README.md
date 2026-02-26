@@ -1,6 +1,5 @@
 <h5 align="center"
 
-![](https://i.postimg.cc/MHd8Qynh/96e898333ab2253c6ab7f6dcb3e119fa-removebg-preview.png) 
 
 
 𝕲𝖗𝖆y𝖘o𝖓 ノ 𝐠𝐫a𝐲　19　𝐛yte 
